@@ -1,2 +1,5 @@
-# Discord-Vantiy-Sniper-
-Bİ Süre Once Çıraklarıma Attığım Kod Alın Kullanın Daha İyileri İçin dc:wuxxu
+# Discord-Vanity-Sniper
+
+For Yate Kardeşim  
+
+Daha İyileri İçin @wuxxu @rottenthougths
