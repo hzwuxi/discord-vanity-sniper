@@ -1,5 +1,5 @@
 # Discord-Vanity-Sniper
 
-For Yate Kardeşim  
+Yate Kardeşim  For
 
-Daha İyileri İçin @wuxxu @rottenthougths
+Daha İyileri İçin @wuxxu @rottenthoughts
